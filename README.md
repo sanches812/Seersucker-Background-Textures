@@ -37,4 +37,4 @@ Lastly, for designs that demand a touch of glamour, the metallic <i>seersucker b
 </ol>
 <strong>Seersucker background textures</strong> offer a unique and professional touch to any design. Whether you prefer a classic, bold, or minimalist approach, there is a <i>seersucker texture</i> that will suit your needs. Experiment with these textures and elevate your designs to new heights of sophistication.
 <br /><br />
-Source: Textures.World Review
+Textures.World Review: <a href="https://textures.world/textile/10-seersucker-background-textures">Seersucker Background Textures</a>
