@@ -1,5 +1,7 @@
 <h2>10 Seersucker Background Textures for Professional Graphic Designers</h2>
 
+<img src="https://raw.githubusercontent.com/sanches812/Seersucker-Background-Textures/main/10-Seersucker-Background-Textures-Cover-CreativeMarket.jpg" alt="Seersucker Background Textures for Professional Graphic Designers" > 
+
 As a graphic designer or design studio, you understand the importance of finding the perfect background textures to enhance your projects. <strong>Seersucker textures</strong> have become increasingly popular due to their unique and professional appearance. In this blog post, we will showcase <i>seersucker background textures</i> that are perfect for adding a touch of sophistication to your designs.
 <ol>
 <li><strong>Classic Seersucker:</strong>
